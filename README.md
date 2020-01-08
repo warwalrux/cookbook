@@ -3,4 +3,4 @@
 [Jambalaya](instapot/IP_Jambalaya.md)
 
 ## Baking
-{biscuits](baking/biscuits.md)
+[biscuits](baking/biscuits.md)
