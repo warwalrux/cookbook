@@ -27,8 +27,8 @@ Add rice and seasonings and stir until rice is well coated. add tomato and stock
 
 Lock lid and manual high pressure cook for 8 minutes, let sit for 5 minutes and release the rest of the pressure manually.
 
-while this is goign on, cook the shrimp in paprika, garlic powder, and remaining oil. set aside when done.
+while this is going on, cook the shrimp in paprika, garlic powder, and remaining oil. set aside when done.
 
 When done, stir the rice and vegetables well, add the cooked shrimp and browned sausage.
 
-Replace the lid and
+Replace the lid and let sit for five minutes. 
