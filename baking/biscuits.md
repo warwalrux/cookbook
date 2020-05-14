@@ -3,7 +3,7 @@ Preheat the oven to 425F
 
 ## Ingredients
 
-  * 1 stick of butter melted
+  * 1 stick of butter cubed and cuched
   * 2 cups flour
   * 1 tsp salt
   * 1 tsp sugar
